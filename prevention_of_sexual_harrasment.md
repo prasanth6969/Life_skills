@@ -1,4 +1,4 @@
-# Prevention of Sexual Harassment (PoSH)
+# Prevention of Sexual Harassment 
 
 ## 1. What kinds of behaviour cause sexual harassment?
 
